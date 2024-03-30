@@ -20,3 +20,4 @@ Your question has led us to believe that you aren't a suitable owner for your ca
 ### Do catgirls have a second pair of human ears?
 No! If your catgirl has human ears it is very likely that she is actually a human who is cosplaying as a catgirl. The term "four-ears" is viewed as a very rude insult against catgirls, so please be thoughtful and avoid the topic around them.
 
+### How much of cat-like behavior do catgirls show? Mine is interested in climbing on top of shelves and fridge, and I didn't find any similar cases when asking around.
